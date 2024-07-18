@@ -1,4 +1,4 @@
 If you have any doubt you can DM me on Instagram.
-My Insta ID:- https://www.instagram.com/developer_ashish.py
+My Insta ID:- https://www.instagram.com/ydv_umesh_
 
-Lets connect on LinkedIn:- https://www.linkedin.com/in/ashish-kushwaha-45201b179
+Lets connect on LinkedIn:- https://www.linkedin.com/in/ydvumesh
